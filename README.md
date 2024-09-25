@@ -1,2 +1,0 @@
-# AluraPlusXP
-tentativa XXPP
